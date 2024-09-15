@@ -31,6 +31,12 @@
 
 <br>
 
+# Most of The Screen Shots Are By:<br>
+
+- <a href="https://discordapp.com/users/516126717774135297"> Zomb935 </a>
+
+- The Rest is By Me.<br>
+
 ![image5](https://github.com/user-attachments/assets/ae9c4c33-6705-4466-90d4-fc26cdaf55ff)
 
 ![image6](https://github.com/user-attachments/assets/471d77d2-f84b-4b8c-8445-53116cacbd09)

@@ -35,7 +35,7 @@
 
 - <a href="https://discordapp.com/users/516126717774135297"> Zomb935 </a>
 
-- The Rest is By Me.<br>
+- The Rest Are By Me.<br>
 
 ![image5](https://github.com/user-attachments/assets/ae9c4c33-6705-4466-90d4-fc26cdaf55ff)
 
